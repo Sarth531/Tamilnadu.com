@@ -1,0 +1,1 @@
+The Nilgiri Hills get their name from the Tamil and Sanskrit words "Neel" (blue) and "Giri" (hill), meaning "Blue Mountains." The name is believed to come from the bluish hue that covers the hills, especially when the Neelakurinji flowers (Strobilanthes kunthiana) bloom once every 12 years. These flowers give the hills a striking blue appearance.
